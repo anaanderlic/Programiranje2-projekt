@@ -6,6 +6,8 @@ najinega študija v 2.letniku na Fakulteti za matematiko in fiziko, Univerza v L
 
 **Videoposnetek predstavitve:**
 
+https://www.youtube.com/watch?v=2Bqg7Y39xhQ&ab_channel=AnaAnderli%C4%8D
+
 **Pripravili:**
 
 _Ana Anderlič_ _in_ _Mojca Šilc_
